@@ -1,2 +1,2 @@
 # HTML
-no idea, trying shit
+ayy, learning by doing \o/
